@@ -1,4 +1,5 @@
 # 
+![image](https://github.com/4SohyunChoi4/movie/assets/62393680/4293508a-dce3-4bed-a719-20904d001b82)
 
 ## Model
 www.msaez.io/#/62393680/storming/fbffdd02e5c961e34ddd1e18df2ba586
